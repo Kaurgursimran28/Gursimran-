@@ -1,4 +1,6 @@
 # Gursimran-
+# certification in excel beginners 
+<img width="500" src="https://www.mygreatlearning.com/certificate/UJMINOSL">
 Date | Lecture | Description |
 | ----------- | ----------- | ----------- | 
 | 09/07/2024 | Gurbani and Kirtan | Some cheerful and enlighten words |
